@@ -1,0 +1,2 @@
+# risyad
+tugas so
